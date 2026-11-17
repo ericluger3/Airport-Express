@@ -11,3 +11,4 @@ Book your ride before you land
 Build in time for the border
 Keep passports and documents ready
 With a little planning, landing in Buffalo can be an easy and affordable way to reach the Falls.
+Know more: https://buffaloairportexpress.com/transportation-from-buffalo-airport-to-niagara-falls-canada-6-transportation-providers-compared-2026-prices-and-fine-print/
